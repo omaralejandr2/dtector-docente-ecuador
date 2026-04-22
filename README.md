@@ -1,0 +1,1 @@
+# dtector-docente-ecuador
